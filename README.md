@@ -10,4 +10,4 @@
     
  𝜗ৎ ⊹ ࣪ not a forsaken fan or player btw!! i just like chance and my partner is a two time fictionkin. idrc if yall interact tho  
  
-𝜗ৎ ⊹ ࣪  majority of the time i'm offtab and slow to reply to whispers. if i dont respond to you in time i apologize </3
+𝜗ৎ ⊹ ࣪ i'm frequently slow to reply to whispers. if i dont respond to you in time i apologize </3
