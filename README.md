@@ -2,10 +2,12 @@
 ### extra info  
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦  
    
- 𝜗ৎ ⊹ ࣪ under 16 iwc, 14 and under go away  
+ 𝜗ৎ ⊹ ࣪ 14 and under go away  
     
  𝜗ৎ ⊹ ࣪ no real dni otherwise, but i block freely  
     
  𝜗ৎ ⊹ ࣪ i don't roleplay, don't ask/try to drag me into any 
     
- 𝜗ৎ ⊹ ࣪ not a forsaken fan or player btw!! i just like chance and my partner is a two time fictkin. idrc if yall interact tho
+ 𝜗ৎ ⊹ ࣪ not a forsaken fan or player btw!! i just like chance and my partner is a two time fictionkin. idrc if yall interact tho  
+ 
+𝜗ৎ ⊹ ࣪  majority of the time i'm offtab and slow to reply to whispers. if i dont respond to you in time i apologize </3
